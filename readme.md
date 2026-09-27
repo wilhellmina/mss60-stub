@@ -1,0 +1,1 @@
+i don't take any responsibilities while using this binary. if you not understand what this does then just dont use it
